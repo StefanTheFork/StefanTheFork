@@ -5,8 +5,8 @@
 
 Here are some ideas to get you started:
 -->
-- 🔭 I’m currently working on the reverse project ↕️
-- 📫 How to reach me: discord @bkgrnd
+- 🔭 I’m currently working on absolutely nothing ↕️
+- 📫 How to reach me: with a hand
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i think i have autism 👍
 
