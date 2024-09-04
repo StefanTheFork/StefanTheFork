@@ -5,8 +5,8 @@
 
 Here are some ideas to get you started:
 -->
-- 🔭 I’m currently working on absolutely nothing ↕️
-- 📫 How to reach me: with a hand
-- 😄 Pronouns: he/him
+- 🔭 I’m currently working on paskalkeebs paskal48 ↕️
+- 📫 How to reach me: @bkgrnd on discord
+- 😄 Pronouns: he/he/ha
 - ⚡ Fun fact: i think i have autism 👍
 
