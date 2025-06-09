@@ -1,12 +1,10 @@
-### Hi there 👋
-im bkgrnd, a random balkan child on the internet
-ive made some interesting stuff, most notable project of mine is the reverse project, ive been working on this piece of **REDACTED** for like 2 years 
-<!--
-**StefanTheFork/StefanTheFork** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### WHEEEEEEEEEEEEEEEELO PEOPLE👋
+ITS ME, BACKGROUND, YOUR FAVOURITE **(most likely your most hated person)** BALKAN CHILD!
+my most notable projects are: 
+**The reverse project.**
+**And uhh...... nothing else.....**
 
-Here are some ideas to get you started:
--->
-- 🔭 I’m currently working on becoming a normal human being, despite the fact im a piece of shit
-- 📫 How to reach me: @bkgrnd on discord
-- ⚡ Fun fact: i hate myself 👍
+- 🔭 I’m currently working on becoming a normal human being, **despite the fact im worthless and a total piece of shit **
+- 📫 How to reach me: **via carrier pigeon or the coders cove discord and a quick dm**
+- ⚡ Fun fact: i hate myself **because im mentally unwell and i listen to my "friends" a little too much (im sorry)👍**
 
