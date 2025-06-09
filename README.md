@@ -1,6 +1,6 @@
 ### Hi there 👋
 im bkgrnd, a random balkan child on the internet
-ive made some interesting stuff, most notable project of mine is the reverse project, ive been working on this piece of **REDACTED** for like 3 years 
+ive made some interesting stuff, most notable project of mine is the reverse project, ive been working on this piece of **REDACTED** for like 2 years 
 <!--
 **StefanTheFork/StefanTheFork** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
