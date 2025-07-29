@@ -1,5 +1,6 @@
 ### WHEEEEEEEEEEEEEEEELO PEOPLE👋
-ITS ME, BACKGROUND, YOUR FAVOURITE **(most likely your most hated person)** BALKAN CHILD!
+ITS ME, BACKGROUND, YOUR FAVOURITE BALKAN CHILD!
+
 my most notable projects are: 
 **The reverse project.**
 **And uhh...... nothing else.....**
