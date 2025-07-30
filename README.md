@@ -7,5 +7,4 @@ my most notable projects are:
 
 - 🔭 I’m currently working on the reverse project
 - 📫 How to reach me: **@bkgrnd or @alt3rnatereal1ty on discord**
-- ⚡ Fun fact: i hate myself 👍
 
